@@ -1,0 +1,1 @@
+# ProjParadigmasA1
